@@ -1,4 +1,4 @@
-#Summer Training at Oil India Limited, Jodhpur
+Summer Training at Oil India Limited, Jodhpur
 Duration: 14th June to 16th July, 2025
 Location: Oil India Limited, Jodhpur (Rajasthan Basin)
 
